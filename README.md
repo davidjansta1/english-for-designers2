@@ -1,4 +1,4 @@
-# **HOW TO be less addicted to anything
+# **HOW TO be less addicted to anything**
 
 I was sitting in the english class.
 
